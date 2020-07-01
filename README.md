@@ -12,7 +12,7 @@ If you accept this idea, I would like to ask you what aspect should I focus in.
 - Programming basic concepts? (By showing block, their effects and interactions)
 - Preparing a fun activity? (Rather presenting an English teaching game)
 
-This is my proposal.
+This is my proposal. Thanks for your time and attention.
 
 Kind regards.
 
